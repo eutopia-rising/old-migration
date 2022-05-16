@@ -4,7 +4,8 @@ date: "2017-10-31"
 coverImage: "20190504_124253.jpg"
 ---
 
-**All in-person Eutopia Rising events are currently suspended, and we are focusing entirely on online gatherings.**  
+We held a first in-person Never Surrender party on April 23, and have started planning for another one on July 30.
+
 **[Read our latest Coronavirus upate.](https://eutopia-rising.org/blog/2020/03/17/coronavirus-update-2/)**
 
 * * *
